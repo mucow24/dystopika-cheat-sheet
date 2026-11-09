@@ -1,1 +1,0 @@
-# dystopika-cheat-sheet
